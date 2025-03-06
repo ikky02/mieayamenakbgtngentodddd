@@ -1,0 +1,2 @@
+# mieayamenakbgtngentodddd
+akusukamieayam
